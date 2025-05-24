@@ -1,0 +1,1 @@
+# Firewatch-game-trainers-no-cooldown
